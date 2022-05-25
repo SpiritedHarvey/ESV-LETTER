@@ -1,0 +1,2 @@
+ # Galatians
+ This was a letter in which St. Paul, one of Jesus' Twelve (Apostles), wrote to a church in Galatia to disapprove of the  message about circumcision and the keeping of the law that outgrew the genuine faith-based religion that is founded upon the "law of Christ." He also affirms teachings about the Spirit, sinfulness, and Christ's commandments, lovingly encouraging the church thereafter.
